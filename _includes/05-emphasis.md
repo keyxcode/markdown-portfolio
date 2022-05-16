@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I love _learning  new things_ and once something starts to click, there's __no__ way back for me. I will just keep going. 
